@@ -1,9 +1,9 @@
 ### Hi there 🧐
 
-My name is Enzo Cassemiro from Brazil. I've working as intern of Field Service Support IT since 2020 and currently studying Computer Enginner 💻 in FACENS 
+My name is Enzo Cassemiro from Brazil. I've been working as an intern in field of IT Support Service since 2020 and I'm currently studying Computer Enginner 💻 in FACENS 
 I'm passionate about aviation ✈️ 
 
-In my free time I like to play video game 🎮, to watch movies 🎞️ and series 📺, and listen to eletronic music 🎵
+In my free time I like to play video game 🎮, watch movies 🎞️ tv shows 📺 and listen to eletronic music 🎵
 
 📫 How to reach me:
 
