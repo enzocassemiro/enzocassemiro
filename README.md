@@ -1,6 +1,6 @@
 ### Hi there 🧐
 
-My name is Enzo Cassemiro and I'm from Brazil. I've been working as an QA since 2021 and I'm currently studying Computer Engineering 💻 in FACENS 
+My name is Enzo Cassemiro and I'm from Brazil. I've been working as an Product Development Intern since 2021 and I'm currently studying Computer Engineering 💻 in FACENS 
 #### I'm passionate about aviation ✈️👨🏻‍✈️ 
 
 In my free time I like to play video game 🎮, watch movies 🎞️ tv shows 📺 and listen to eletronic music 🎵
